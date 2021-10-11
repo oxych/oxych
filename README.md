@@ -2,4 +2,4 @@
 - 👀 I’m interested in video games
 - 🌱 I’m currently learning css
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me oxy#2757 on discord
+- 📫 How to reach me: oxy#2757 on discord
